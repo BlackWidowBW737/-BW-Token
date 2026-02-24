@@ -111,8 +111,8 @@ Every burn counts. Every transaction matters.
 
 **Contract Address:** [Insert Here]  
 **Dex Listing:** [Insert Here]  
-**Community & Socials:** [Twitter] | [TikTok] | [Discord]
-
+**Community & Socials:** [Twitter]
+https://t.me/BlackWidowOfficial22
 ---
 
 ## 📌 BADGES
