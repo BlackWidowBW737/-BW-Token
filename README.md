@@ -110,6 +110,7 @@ Every burn counts. Every transaction matters.
 
 https://t.me/BlackWidowOfficial22
 ---
+https://x.com/AAmine52487
 
 ## 📌 BADGES
 
