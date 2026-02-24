@@ -107,11 +107,7 @@ Be part of **BW**, the rarest token on Solana.
 Every burn counts. Every transaction matters.  
 **Witness the unstoppable journey to ultimate scarcity – until the very last token disappears.**
 
----
 
-**Contract Address:** [Insert Here]  
-**Dex Listing:** [Insert Here]  
-**Community & Socials:** [Twitter]
 https://t.me/BlackWidowOfficial22
 ---
 
